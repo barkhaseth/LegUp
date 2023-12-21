@@ -1,1 +1,1 @@
-# LegUp-
+# LegUp
